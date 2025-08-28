@@ -1,1 +1,0 @@
-# Guzhie-PORTIFOLIO-2025-3DS-AMS
